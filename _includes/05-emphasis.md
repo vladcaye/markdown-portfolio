@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+***I help** young entrepreneurs* setup their online business fast, to remove the early blocks of getting started!
